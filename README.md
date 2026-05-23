@@ -1,4 +1,4 @@
-![](https://count.getloli.com/@:why%20arwe%20you%20heere??name=%3Awhy+arwe+you+heere%3F&theme=booru-lewd&padding=4&offset=0&align=top&scale=1&pixelated=1&darkmode=auto&num=2025)
+![](https://count.getloli.com/@:why%20arwe%20you%20heere??name=%3Awhy+arwe+you+heere%3F&theme=booru-lewd&padding=4&offset=0&align=top&scale=1&pixelated=1&darkmode=auto&num=2026)
 
 <!--
 **TheRealUwie/TheRealUwie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
